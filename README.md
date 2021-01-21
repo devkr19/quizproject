@@ -1,1 +1,1 @@
-my qiuz repoo
+my quiz repoo
